@@ -1,0 +1,1 @@
+hello everyone this is my emo in the hopes of it becoming like project-victor i have submited the code of my brocken emo (a leg servo issue) and  i hope u guys could mmake a server like wire pod from it
